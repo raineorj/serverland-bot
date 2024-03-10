@@ -1,5 +1,5 @@
 # Altyapı 20 star'da paylaşılacaktır.
-* (Altyapı paylaşımına geri dönüyorum)
+* Altyapı paylaşımına 3 yıl sonra geri dönüyorum, altyapıyı 20 stardan önce satın almak istiyorsanız ulaşabilirsiniz; raineorj
 
 # İletişim:
 * [Discord Server](https://discord.gg/serverlook)
